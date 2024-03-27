@@ -2,7 +2,7 @@
 
 #### Work :hammer:
 
-I work at Volvofinans Bank as a software engineer
+I work at Ziklo Bank as a software engineer
 
 #### Get in touch :mailbox:
 
